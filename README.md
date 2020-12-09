@@ -1,0 +1,1 @@
+# Reiknirit2020H-Lokaverkefni
